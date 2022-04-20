@@ -1,9 +1,11 @@
 ### Hi, I’m **Jay** ＜（＾－＾）＞
 
-💜 I’m interested in Minecraft, Design, Coding, The Sims4.
-🌱 I’m currently learning everything👀.
-
-📫 How to reach me:
+- 💜 I’m interested in Minecraft, Design, Coding, The Sims4.
+- 🌱 I’m currently learning everything👀.
+- 😄 Pronouns: any
+ 
+####- 📫 How to reach me:
+ 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/jay_ljlp/)  
 
 
